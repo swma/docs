@@ -101,6 +101,9 @@ Un règlement intérieur pourra être établi par le Conseil d'Administration qu
 
 Ce règlement est destiné à fixer les divers points non prévus par les statuts, notamment ceux qui ont trait à l'administration interne de l'association.
 
+___
+
+#### Signatures 
 
  
 
